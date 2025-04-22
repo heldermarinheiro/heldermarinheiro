@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning marketing digital
 - 💞️ I’m looking to collaborate on filmmakers, designers, educators, and creatives
 - 📫 How to reach me my gmail: jheldermarinheiro@gmail.com
-- 😄 Pronouns: they
+- 😄 Pronouns: he
 - ⚡ Fun fact: tecnologyc, IA and ARVR
 🎬 Founder of Africine – Empowering African stories through film, design, and technology.  
 🎓 Background in Public Administration, Cinematic Editing, and Graphic Design.  
